@@ -11,4 +11,4 @@
 ## CREATOR
 
 <p>This was created by Sisimac Duchicela <br>
-<sisimac.duchicela@colorado.edu><p>
+[Contact Support] (mailto:sisimac.duchicela@colorado.edu) <p>
